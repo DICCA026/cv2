@@ -1,1 +1,1 @@
-# cv2
+# Baru belajar bang GA SENENG BAKU HANtAM KITA!!!
